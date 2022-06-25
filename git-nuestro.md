@@ -2,3 +2,6 @@
 
 Git nuestro que estás en los repos
 Santificados sean tus commits
+danos hoy nuestro pull de cada día
+perdona nuestros conflictos
+como también perdonamos los de otros Geeks
